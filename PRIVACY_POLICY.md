@@ -1,6 +1,6 @@
 # Privacy Policy
 
-**Effective Date:** [Insert Date]
+**Effective Date:** Dec 13, 2024
 
 **Spread App** is an innovative tool to help you organize your dating life, spot compatibility patterns, and make smarter, more intentional decisions in today’s fast-paced dating world. We are committed to protecting your privacy. This Privacy Policy explains how your data is handled when you use our app.
 
